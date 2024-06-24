@@ -19,7 +19,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 - 📫 How to reach me **tbanks200110@gmail.com**
 
-- 📄 Know about my experiences [here](https://drive.google.com/file/d/1u3vex_xy-J-ytu7yvbTVqIraH6IZaRAp/view?usp=drive_link)
+- 📄 Know about my experiences [here](https://drive.google.com/file/d/1pLbAWqaGBd-gaxhNPlwrux0VWB6LgKb6/view?usp=drive_link)
 
 - ⚡ Fun fact **If I wasn't a programmer, I'll probably be a footballer⚽**
 
